@@ -44,6 +44,14 @@ Datta, Dayadhvam, Damyata.
 
 ···
 
+*Dodo l'enfant do* : *SOS d'un terrien en détresse*, D. Balavoine. *J'aimerais mieux être un oiseau / Dodo l'enfant do*, meaning I'd rather be a bird / Sleep, child, sleep.
+
+*No pearls in our eyes*: *The Tempest*, W. Shakespeare. Original sentence: *Those are pearls that were his eyes* - The song the spirit Ariel sings to Ferdinand of his father's supposed drawning.
+
+*In me the tiger sniffs the rose*: *In me past, present and future meet*, S. Sassoon. I interpret here as the duality of human nature, but here as gain and struggle as a necessary component of our lives. 
+
+*Datta, Dayahvam, Damyata*: *The Waste Land*, T.S. Eliot. Eliot quoted this from the *Brihadaranyaka Unpanishad* in which God presents three sets of disciples with the enigmatic syllable DA, challenging each group to undersand it. Each group is supposed to understand the syllable as the root of a different imperative: Dattta (Give to men), Dayahvam (Compassion to the demons), Damyata (Control for the gods). Here I want to emphasize the attitude one should live.
+
 二零二二年十月十二日於香港。
 
 
