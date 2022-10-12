@@ -48,7 +48,7 @@ Datta, Dayadhvam, Damyata.
 
 *No pearls in our eyes*: *The Tempest*, W. Shakespeare. Original sentence: *Those are pearls that were his eyes* - The song the spirit Ariel sings to Ferdinand of his father's supposed drawning.
 
-*In me the tiger sniffs the rose*: *In me past, present and future meet*, S. Sassoon. I interpret here as the duality of human nature, but here as gain and struggle as a necessary component of our lives. 
+*In me the tiger sniffs the rose*: *In me past, present and future meet*, S. Sassoon. It shows the duality of human nature, but I interpret here that gain and struggle are necessary components of our lives. 
 
 *Datta, Dayahvam, Damyata*: *The Waste Land*, T.S. Eliot. Eliot quoted this from the *Brihadaranyaka Unpanishad* in which God presents three sets of disciples with the enigmatic syllable DA, challenging each group to undersand it. Each group is supposed to understand the syllable as the root of a different imperative: Datta (Give to men), Dayahvam (Compassion to the demons), Damyata (Control for the gods). Here I want to emphasize the attitude one should live.
 
