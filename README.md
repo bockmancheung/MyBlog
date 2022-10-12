@@ -13,7 +13,9 @@ We would be chanting
 *Dodo l'enfant do*
 
 But there is past
+
 ···
+
 If there were no present
 
 And also struggle
@@ -27,7 +29,9 @@ We would have
 No pearls in our eyes
 
 But there is present
+
 ···
+
 In me past, present and future meat
 
 In me the tiger sniffs the rose
@@ -38,7 +42,10 @@ And screams
 
 Datta, Dayadhvam, Damyata.
 
+···
+
 二零二二年十月十二日於香港。
+
 
 
 ## 我的一偏之見
