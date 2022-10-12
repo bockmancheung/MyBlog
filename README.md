@@ -13,7 +13,7 @@ We would be chanting
 *Dodo l'enfant do*
 
 But there is past
-
+···
 If there were no present
 
 And also struggle
@@ -27,7 +27,7 @@ We would have
 No pearls in our eyes
 
 But there is present
-
+···
 In me past, present and future meat
 
 In me the tiger sniffs the rose
