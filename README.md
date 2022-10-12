@@ -1,25 +1,41 @@
 ## Past, Future, Present
 
 If there were no past
+
 And also memories
+
 And memories
+
 Grief
+
 We would be chanting
+
 *Dodo l'enfant do*
+
 But there is past
 
 If there were no present
+
 And also struggle
+
 And struggle
+
 Failure
+
 We would have
+
 No pearls in our eyes
+
 But there is present
 
 In me past, present and future meat
+
 In me the tiger sniffs the rose
+
 The man still stands
+
 And screams
+
 Datta, Dayadhvam, Damyata.
 
 二零二二年十月十二日於香港。
