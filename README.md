@@ -10,6 +10,8 @@
 
 請和我講道理，請“有返D Common Sense"，請完全、直接展現你的想法，不要反反復復的不明不白。
 
+盧梭於 Confessions 中寫道， To be sane in a world of madman is in itself madness. Yes, I am mad. I am eager to be mad. Only being mad can get me, for a second, out of this fucking humanity. 
+
 二零二二年十一月三日於香港。
 
 ## Past, Future, Present
