@@ -1,3 +1,9 @@
+## Trash Joke
+
+What is the French way of saying "Pussy"?
+
+Debussy.
+
 ## 醒
 
 以前的我，天真的以爲，人的水平是會隨著科技發展而提升的。
