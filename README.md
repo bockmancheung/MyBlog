@@ -2,7 +2,9 @@
 
 What is the French way of saying "Pussy"?
 
-Debussy.
+Depussy.
+
+二零二二年十一月二十日於香港。
 
 ## 醒
 
