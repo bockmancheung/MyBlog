@@ -1,3 +1,12 @@
+## Ecce Homo
+
+On this perfect day, when everything is ripening and not only the
+grapes are turning brown, a shaft of sunlight has just fallen on my
+life: I looked backwards, I looked ahead, I never saw so much and
+such good things all at once. And so I write les essais de MIT.
+
+二零二二年十二月三日於香港。
+
 ## 主觀
 
 剛過了十七歲生日，有些感想在我心中不吐不快。
