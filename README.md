@@ -1,3 +1,13 @@
+## Some thoughts on economics 
+
+GDP is calculated as the total sum of values created by resident producing units (RPU). Under this definition, RPU doesn't limit to individuals or groups, but also include firms.
+
+Classical liberalism advocates the concept of free market - that individual interventions shouldn't be limited by the government. When a corporation is taken into account as an individual in economic theory, liberalism becomes a theory of state intervention in capitalism, which has little relation to classical liberalism, as it is (if I'm not mistaken) called "neoliberalism".
+
+Does this model really fits into the true sense of "free market" in a modern day context? 
+
+二零二二年十二月九日於香港。
+
 ## Ecce Homo
 
 On this perfect day, when everything is ripening and not only the
