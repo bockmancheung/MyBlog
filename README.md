@@ -1,3 +1,9 @@
+## Universal 喷雾
+
+麻省理工爱我，哈佛爱我，剑桥爱我，史丹佛爱我，普林斯顿爱我，帝国理工爱我，加州理工爱我，加州大学爱我，哥伦比亚大学爱我，纽约大学爱我。
+
+二零二二年十二月二十日於香港。
+
 ## Some thoughts on economics 
 
 GDP is calculated as the total sum of values created by resident producing units (RPU). Under this definition, RPU doesn't limit to individuals or groups, but also include firms.
