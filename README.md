@@ -1,9 +1,8 @@
 ## A to-do list in 2023 (After DSE, I'm afraid, since I am overloaded with commitments at this moment)
 
 1. Literature 
-  - War and Peace (100%)
-  - Ulysses (100%)
-  - Finnegan's Wake (10%?)
+  - War and Peace 
+  - Ulysses 
 
 2. Music
   - LTCL Piano
