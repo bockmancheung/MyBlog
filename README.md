@@ -12,7 +12,7 @@
 3. Academics
   - DSE
   - Get into MIT or equivalent (so at least I can have a reason to do all those stuff)
-  - Revisit in 1st and 2nd year undergrad math materials (after DSE, I think)
+  - Revisit 1st and 2nd year undergrad math materials (after DSE, I think)
   
 4. Others
   - Learn to solve crossword puzzles
