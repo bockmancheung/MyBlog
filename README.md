@@ -1,4 +1,4 @@
-## A list of things that I want to do in 2023 （After DSE, I afraid, since I am overloaded with commitments at this moment)
+## A list of things that I want to do in 2023 （After DSE, I'm afraid, since I am overloaded with commitments at this moment)
 
 1. Literature 
   - War and Peace (100%)
