@@ -1,14 +1,36 @@
+## A list of things that I want to do in 2023 
+
+1. Literature 
+  - War and Peace (100%)
+  - Ulysses (100%)
+  - Finnegan's Wake (10%?)
+
+2. Music
+  - LTCL Piano
+  - Learn music theory to appreciate music
+ 
+3. Academics
+  - DSE
+  - Get into MIT or equivalent (so at least I can have a reason to do all those stuff)
+  - Revisit in 1st and 2nd year undergrad math materials (after DSE, I think)
+  
+4. Others
+  - Learn to solve crossword puzzles
+  - Participate in more civic events
+  - Travel to USA/ other countries
+  
+二零二三年一月四日。
 ## 緣盡
 
 獅子再見，老虎你好。
 
-二零二二年十二月二十六日於香港。
+二零二二年十二月二十六日。
 
 ## Universal 喷雾
 
 麻省理工爱我，哈佛爱我，剑桥爱我，史丹佛爱我，普林斯顿爱我，帝国理工爱我，加州理工爱我，加州大学爱我，哥伦比亚大学爱我，纽约大学爱我。
 
-二零二二年十二月二十日於香港。
+二零二二年十二月二十日。
 
 ## Some thoughts on economics 
 
@@ -18,7 +40,7 @@ Classical liberalism advocates the concept of free market - that individual inte
 
 Does this model really fits into the true sense of "free market" in a modern day context? 
 
-二零二二年十二月九日於香港。
+二零二二年十二月九日。
 
 ## Ecce Homo
 
@@ -27,7 +49,7 @@ grapes are turning brown, a shaft of sunlight has just fallen on my
 life: I looked backwards, I looked ahead, I never saw so much and
 such good things all at once. And so I write les essais de MIT.
 
-二零二二年十二月三日於香港。
+二零二二年十二月三日。
 
 ## 主觀
 
@@ -37,7 +59,7 @@ such good things all at once. And so I write les essais de MIT.
 
 這個世界太廣漠了。我們雙眼圓瞪，也只能看到真相的一部分。所以我們倒也不用“懶持平”，追求絕對的客觀。偶爾加點主觀調劑一下，離事物的真相可能會更遠，卻能在這重複性、看似無意義的生活加點樂趣。
 
-二零二二年十一月二十五日於香港。
+二零二二年十一月二十五日。
 
 ## Trash Joke
 
@@ -45,7 +67,7 @@ What is the French way of saying "Pussy"?
 
 Depussy.
 
-二零二二年十一月二十日於香港。
+二零二二年十一月二十日。
 
 ## 醒
 
@@ -61,7 +83,7 @@ Depussy.
 
 盧梭於 Confessions 中寫道， To be sane in a world of madman is in itself madness. Yes, I am mad. I am eager to be mad. Only being mad can get me, for a second, out of this fucking humanity. 
 
-二零二二年十一月三日於香港。
+二零二二年十一月三日。
 
 ## Past, Future, Present
 
@@ -117,7 +139,7 @@ Datta, Dayadhvam, Damyata.
 
 *Datta, Dayahvam, Damyata*: *The Waste Land*, T.S. Eliot. Eliot quoted this from the *Brihadaranyaka Unpanishad* in which God presents three sets of disciples with the enigmatic syllable DA, challenging each group to undersand it. Each group is supposed to understand the syllable as the root of a different imperative: Datta (Give to men), Dayahvam (Compassion to the demons), Damyata (Control for the gods). Here I want to emphasize the attitude one should live.
 
-二零二二年十月十二日於香港。
+二零二二年十月十二日。
 
 
 
@@ -127,4 +149,4 @@ Datta, Dayadhvam, Damyata.
 
 這裏我要spoiler一下，人生短促，所看到的視野和風景往往狹窄，加上身爲局中人，不免受背景，學問所限，我寫的東西可能有詞不達意或表達不佳之處，這些我承認是有的。我這個人最大的弱點是會overthink，杞人憂天也罷，所以這裏我要跟大家點清楚這個問題，希望各位看官容忍，也提防一下。我在這裏的目的只有一個：發一偏之見，一吐爲快。任何意見或批評，我都會愉快的接受，但請不要把我所寫的東西take it as an offense。在這裏我先向各位表達感謝。羅素説過，I won't die for my beliefs as afterall, I may be wrong. 希望能以這種心態，開展坦誠的討論。
 
-二零二二年八月七日於香港。
+二零二二年八月七日。
