@@ -1,9 +1,13 @@
 ## A to-do list in 2023 (After DSE, I'm afraid, since I am overloaded with commitments at this moment)
 
-1. Literature 
-  - War and Peace 
-  - Ulysses 
-
+1. Reading
+  - War and Peace (Leo Tolstoy)
+  - Ulysses (James Joyce)
+  - In Search of Lost Time (Marcel Proust)
+  - Self-Relicnae (Ralph Waldo Emerson)
+  - Man and Its Symbols (Carl Yung)
+  - Translate Letters to Young Poet into Chinese
+  
 2. Music
   - LTCL Piano
   - Learn music theory to appreciate music
