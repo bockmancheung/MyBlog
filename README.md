@@ -7,6 +7,8 @@
   - Self-Relicnae (Ralph Waldo Emerson)
   - Man and Its Symbols (Carl Yung)
   - Translate Letters to Young Poet into Chinese
+  - 1984 (George Orwell)
+  - Brave New World (Aldous Huxley)
   
 2. Music
   - LTCL Piano
