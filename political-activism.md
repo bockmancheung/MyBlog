@@ -14,7 +14,7 @@ Russell summarizes the insights into his position into a innate human nature fai
 
 § Anarchism, unlike capitalism or socialism or communism, haven't been carried out in a large scale yet, but for examples, check the anarcho-syndicalist movement in Spain before the Spainish Civil War, Kibbutzim in early days of Israel, and the workers' councils in former Yugoslavia.
 
-> Liberty without socialism is privilege, injustics; ... socialism without liberty is slavery and brutality. - Mikhail Alexandrovich Bakunin (Russian revolutionary anarchist)
+> Liberty without socialism is privilege, injustice; ... socialism without liberty is slavery and brutality. - Mikhail Alexandrovich Bakunin (Russian revolutionary anarchist)
 
 ## 2. Enlightment liberalism (The Encyclopédie)
 
