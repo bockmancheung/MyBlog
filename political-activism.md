@@ -1,6 +1,6 @@
-# 11/02/2023 Doctrine of Chomsky's Political Activism
+## 11/02/2023 Doctrine of Chomsky's Political Activism
 
-## 1. Anarchism 
+### 1. Anarchism 
 
 What is anarchism? It is a political thought that, as the anarchist historian Rudolf Rocker put it, "strives for the free unhindered unfolding of all the individual and social forces in life," combining the best of socialism and liberalism.
 
@@ -16,7 +16,7 @@ Russell summarizes the insights into his position into a innate human nature fai
 
 > Liberty without socialism is privilege, injustice; ... socialism without liberty is slavery and brutality. - Mikhail Alexandrovich Bakunin (Russian revolutionary anarchist)
 
-## 2. Enlightment liberalism (The Encyclopédie)
+### 2. Enlightment liberalism (The Encyclopédie)
 
 Chomsky has a clear affinity with the Encyclopédies of the eighteenth century, with figures like Denis Diderot, Rousseau and Voltaire. The Encyclopédies is founded on the assumption that "the truth speaks for itself", if "you present people with the facts they will automatically be persuaded of the truth". Chomsky believes that the availability of the truth is a necessary prerequisite to establishing any kind of decent society, and what he does is "provide ...  service to popular dissident movements and scattered individuals" who are trying to oppose the power of corporate propaganda and indoctrination. To summarize very briefly, his hope is that the availablility of information about the actions of the elits will lead to orgaization and popular activism that opposes them and begins to build a better society.
 
