@@ -8,7 +8,7 @@ There are multiple traces of Chomsky's work and thinking that contribute to his 
 
 † He claims that language as a "mental organ", see I-languages and E-languages, competence-performance dichotomy for more. (Russell summarizes the insights into his position fairly well:" How comes it that human beings, whose contacts with the world are brief and personal and limited, are nevertheless able to know as much as they do know?")
 
-* Anarchism, unlike capitalism or socialism or communism, haven't been carried out in a large scale yet, but for examples, check the anarcho-syndicalist movement in Spain before the Spainish Civil War, Kibbutzim in early days of Israel, and the workers' councils in former Yugoslavia.
+§ Anarchism, unlike capitalism or socialism or communism, haven't been carried out in a large scale yet, but for examples, check the anarcho-syndicalist movement in Spain before the Spainish Civil War, Kibbutzim in early days of Israel, and the workers' councils in former Yugoslavia.
 
 "Liberty without socialism is privilege, injustics; ... socialism without liberty is slavery and brutality." - Mikhail Alexandrovich Bakunin (Russian revolutionary anarchist)
 
