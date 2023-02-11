@@ -6,7 +6,7 @@ What is anarchism? It is a political thought that, as the anarchist historian Ru
 
 There are multiple traces of Chomsky's work and thinking that contribute to his position as an anarchist. For example, from his "cognitive revolution" of modern linguistics, he believes that language is innate to human nature†, and "our language faculty and aspects of our moral sense are putatively innate". In other words, what is intrinsic to human nature is the "desire to create under conditions of freedom and lack of constraint" (See his essay, *Language and Freedom* (1970)). Perhaps that is the major connection of his celebrated contributions in linugistics to politics. He seeks to "free individuals from oppresion", and through "the intensive study of one aspect of human psychology - human language - may contribute to a humanistic social science tahat will server , as well, as an instrument for social action."
 
-† He claims that language as a "mental organ", see I-languages and E-languages, competence-performance dichotomy for more. 
+† He claims that language is a "mental organ", see I-languages and E-languages, competence-performance dichotomy for more. 
 
 Russell summarizes the insights into his position into a innate human nature fairly well:
 
