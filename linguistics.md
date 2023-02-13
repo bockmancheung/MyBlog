@@ -4,7 +4,7 @@ Does the Godel 2nd incompleteness theorem apply to the (non-exhaustability/non-p
 
 keywords: Minimalist program, Chomsky, Godel, logic, cognitive science
 
-## Non-academic benefits of studying linguistics 
+## Non-academic benefits of studying linguistics 13/02/2023
 
 1. Train a mindset to expose debased language of the media. To tell truths and expose lies. (although it is fine if you have common sense.)
 
