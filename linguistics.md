@@ -12,7 +12,7 @@ keywords: Minimalist program, Chomsky, Godel, logic, cognitive science
 
 3. Language is highly psychological and cultural - study of human language may contribute to a humanistic social science that will serve as an instrument for social action.
 
-### Postscriptum. 
+### Postscriptum 
 
 My friend wrote this passage:
 
