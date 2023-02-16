@@ -12,4 +12,4 @@ Ulysses
 
 Gravity's Rainbow
 
-Deep Read Dickenson's poems (2 poems per day, reflect deeply and write down own interpretation
+Deep Read Dickinson's poems (2 poems per day, reflect deeply and write down own interpretation
