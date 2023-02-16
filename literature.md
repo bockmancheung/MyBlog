@@ -4,7 +4,7 @@ Nicomachean Ethics
 
 In Search of Lost time
 
-Shakespearean Plays and Tragedies
+Shakespearean Sonnets and Tragedies
 
 War and Peace
 
