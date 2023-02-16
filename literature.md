@@ -12,4 +12,4 @@ Ulysses
 
 Gravity's Rainbow
 
-And some poems, short stories, Dickens, Harold Bloom, etc
+Deep Read Dickenson's poems (2 poems per day, reflect deeply and write down own interpretation
