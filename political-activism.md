@@ -1,4 +1,4 @@
-## 11/02/2023 Doctrine of Chomsky's Political Activism
+## 02/11/2023 Doctrine of Chomsky's Political Activism
 
 ### 1. Anarchism 
 
