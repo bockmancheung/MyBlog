@@ -2,8 +2,6 @@
 
 諸位有幸讀到鄙人作品的讀者——如過這些作品還能被人發現的話——不要對我的話視若真理，因爲如此人類便危險了。我這些段落不無充斥著偏見、偏執，但我爲什麽明知道我的寫作，我的人格那麽糟糕，仍要把他們留下，不一把火燒掉呢？親愛的，這就是你的責任了。我希望這些段落的荒唐之間至少蘊藏了一些價值（你又怎麽知道荒唐之中沒有一點對時代、甚至人類的洞見呢？人對世界的認識太少了，不從一些偏見入手，只會讓一個人永遠裹足不前。）所以我敢把他們放出來，就是希望抛磚引玉，刺激諸位思考，同時誠邀各位極力批判，把「張博旻」這個人的十七歲人生解析提煉，讓我能夠旁敲側擊地了解自己思維的缺陷，也能給世人留下一個反面教材，叫他們不要走我走過的路。
 
-Readers who have had the good fortune to read my works—if they can be discovered—don't take my words as truth, for then humanity is in danger. These passages of mine are not without prejudice and bigotry, but why should I keep them and not burn them, knowing that my writing and my personality are so bad? My dear, this is your responsibility. I hope that there is at least some value in the absurdity of these passages (how do you know that there is no insight into the times or even human beings in the absurdity? People know too little about the world, and if they don’t start with some prejudices, it will only make a person to never move forward.) So I dare to release them, hoping to inspire you to think, and at the same time, I sincerely invite you to criticize and refine the seventeen-year-old life of "Cheung Bock Man", so that I can understand my own thinking in a circumstantial way. My flaws can also leave a negative teaching material for the world, telling them not to follow the path I have walked.
-
 警告：不要全盤拿我的段落的字面含義作爲我心中想説的話，因爲我的話重若千鈞，很難用語言作爲載體準確表達。再加上作者的神智也不是太清晰，急需要治療——還是那句，小心走火入魔。
 
 在香港，人生就是由充滿夢想，到夢想獨力難支，最後夢想幻滅。
