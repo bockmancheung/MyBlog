@@ -1,6 +1,6 @@
 # MyBlog
 
-Hi, welcome to my blog.
+Hi, welcome to my blog. My name is Bock Man and I'm an incoming freshman at UCLA.
 
 My thoughts are very roughly categorized. 
 
