@@ -1,3 +1,9 @@
+## 無題 (07/15/2023)
+
+The dusk of July in Hong Kong depresses the undepressed, wearies the unwearied. When the whole week is sunny, storing massive amounts of heat to the point where the air is unbearably humid, there is a shower that will purify the air, purify laboring living beings. But you are not purified. The sun disappears amidst the darkening sky, with about an hour remaining before complete darkness. In such moments, my perception of time lengthens. I feel that I will never live to see the rising sun. The sun is hope, and hope becomes so sacredly rare. I find myself thrown into a desert of prospering buildings in a desolate universe, with the right road completely lost. These are moments I have to constantly draw wisdom from Hemingway’s Santiago in The Old Man and the Sea to find myself a purpose. “‘But man is not made for defeat,’ he said, ‘A man can be destroyed but not defeated,’” If there is a string that vibrates in my heart to balance out the depressing thoughts of the realization of the absurd, it is Hemingway.
+
+
+
 ## 讀季羡林《站在胡適之先生墓前》(04/15/2023)
 
 我讀季羡林《站在胡適之先生墓前》，心中正如季羡林當日站在五十年前見最後一面的胡適之先生墓前，浮想聯翩。民國的泰斗上承康有爲、梁啓超等維新君子，到五四年間的胡適之、陳寅恪，下至季羡林、饒宗頤等二十一世紀初逝世的國學家，風雲變遷百餘年，往事如雲如煙，這些人全已駕鶴西游，但讀季羡林文章，又歷歷如在目前。我想像胡適之先生站在我前，露出那有魅力的典型的「我的朋友」式的笑容，中華百年歷史依稀縮為一刹那，歷史仿佛沒有移動。但是，一定神兒，又記得這些教授已經作古多年，我心中只能悠然神往之，希望他們治學的精神、學無止境的態度能夠成爲我這個不甚聰敏、不甚堅持的人的勉勵。
